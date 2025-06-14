@@ -2,9 +2,11 @@
 ### Articles
 - [A High IQ Makes You an Outsider, Not a Genius](https://files.catbox.moe/sve6x1.pdf) \[The Atlantic]
 - [Generation Adderall](https://files.catbox.moe/bb5dah.pdf) \[New York Times]
+
 ### Videos
 - [Vulnerable Narcissism in Bojack Horseman.](https://www.youtube.com/watch?v=DYO6uq2gQ6o)
 - [life is art](https://www.youtube.com/watch?v=_lgqofIJIws) 
+
 ## Argghhhh!!!!
 PIRATEBAY IS FILLED WITH MALWARE, This is how 2 get free shit and not get a virus
 ### Prerequisites
